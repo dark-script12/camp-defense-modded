@@ -1,6 +1,3 @@
-# camp-defense-modded
-
-
 # this has inf gems gold and high damage there is also no cooldown on claim please join my discord for more hacks and other stuff https://discord.gg/bTtWHE4Xem
 
 
